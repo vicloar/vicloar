@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @vicloar
+- 👀 I’m interested in economy, finance, data and machine learning
